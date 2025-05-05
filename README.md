@@ -12,8 +12,8 @@
 
 ## 🚀 Connect with Me
 
-- 🎥 [YouTube](https://youtube.com)
-- 📸 [Instagram](https://instagram.com)
+- 🔗 [Linkedin](https://linkedin.com)
+- 📸 [Email](iswarreddy980@gmail.com)
 - 💼 [GitHub](https://github.com/IswarReddy)
 
 ---
